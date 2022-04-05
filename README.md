@@ -8,3 +8,5 @@ Im from JFSD I Welcome myself. Hello
 I am new to all of this. Im a noob
 
 But i will do my absolute best!
+
+I will never give up!
